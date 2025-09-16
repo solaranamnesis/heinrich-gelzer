@@ -66,4 +66,54 @@ Iranischen Ursprungs ist auch der vielleicht nationalste und populärste Gott de
 
 *) Der Grieche hat: § 140. καὶ ὁ τρίτος βωμὸς ἀστέρος θεῶν καὶ τῶν Ἡρακλέους ἐλέγετο κληθείς κατὰ δὲ τοὺς Ἕλληνας Ἀφροδίτης. Nach dem armenischen Text (սենեակ Վահագնի) ist beim Griechen κοιτὼν Ἡρακλέους herzustellen. Die Worte ըստ յունական müssen nach Anleitung der griechischen Übersetzung zu dem Folgenden gezogen werden.
 
+Man wird nicht behaupten, dass dieser Bericht sich durch besondre Klarheit auszeichne. Zuerst wird berichtet von einem Tempel (մեհեան, mehean) dann werden drei Altäre (bagin երեք բագինքն) erwähnt; hierauf bei der Einzelbeschreibung werden drei Tempel (Mehean) aufgezählt und bei dem zweiten ausdrücklich der Altar (bagin) vom Tempel unterschieden. Der Grieche übersetzt: τοῦτο τὸ ἱερὸν ἔτι περιέστηκεν τρεῖς βωμοὺς ἐν ἑαυτῷ ἔχον.* Indessen solche erklärende Zusätze flicht er mehrfach seiner Übersetzung ein. Die Entscheidung giebt hier Faustus 3. 14 S. 37: մեծին Գրիգռրի յաւուրս յորում կործանեաւց զբագինսն մեհենիցն Հէրակլեայ՝ այս ինքն Վահագնի, որումտեղոյ Աշտիշատն կարդացէալ..., des grossen Grigor, als er die Altäre der Tempel des Herakles --- das ist des Vahagn --- zerstörte an dem Orte, Aštišat genannt.“ Hier haben wir es deutlich mit einer Mehrheit nicht nur von Altären, sondern auch von Tempeln zu thun. Möglicherweise lassen sich diese Widersprüche vereinigen durch die Annahme, dass das Tempelgebäude in drei Zellen zerfiel; der Mittelbau war das Heiligthum des Vahagn, die beiden Seitenkapellen waren dem Dienst der beiden Göttinnen gewidmet. Damit würde es gut stimmen, dass die Cella der Astłik als Schlafgemach oder Zimmer des Vahagn bezeichnet wird.
+
+*) Agathangelos neu herausg. von Lagarde (Abh. d. hist. phil. Cl. d. G. d. W. z. Göttingen 1889 35. 1) S. 71, 50. Ganz ebenso sind 71, 46: προσηγορεύετο δὲ ὁ βωμὸς ὀγδόου σεβάσματος τοῦ εὐφημοτάτου δρακοντοπνίκτου Ἡρακλέους die Worte ὁ βωμός erläuternder Zusatz, wie hier τοῦτο τὸ ἱερόν. In der Übersetzung der Worte mehean und bagin ist der Grieche übrigens keineswegs consequent. մեհեան (mehean) giebt er durch ἱερόν wieder.  
+S. 452: յԱնահտական  ՚ի մեհեանն|65, 27: εἰς τὸ τῆς Ἀρτέμιδος ἱερόν.  
+S. 453: ՚ի դուռն մեհենին|65, 31: εἰς τὴν θύραν τοῦ ἱεροῦ.  
+S. 455: մեհեան անուանեալ սպիտակափառ|66, 70: ἱερὸν λεγόμενον λευκοδόξων δαιμόνων.  
+S. 457: ՚ի մեծ և ՚ի բուն մեհենեացն Հայոց թագաւորացն|67, 86: ἐν τοῖς μεγάλοις ἱεροῖς τῆς Ἀρμενίας.  
+S. 457: զգանձս երկուցուն մեհենացն|67, 95: τοὺς δὲ θησαυροὺς ἀμφοτέρων τῶν ἱερῶν.  
+S. 459: ՚ի Մրհական մեհեանն|68, 16: ἑν τῷ ἱερῷ Ἡφαίστου.  
+Durch βωμός giebt er es wieder:  
+S. 457: ՚ի տեղիս պաշտամանացն յԱնահտական մեհենացն|67, 87: ἐν τοῖς τόποις τῶν σεβασμάτων, ὅπου ἦν ὁ βωμὸς τῆς Ἀρτέμιδος.  
+S. 457: զՆանէական մեհեանն|67, 94: τὸν τῆς Ἀθηνᾶς βωμόν.  
+S. 469: Վահէվահեան մեհեանն|71, 44: Οὐαυήϊος βωμός.  
+S. 469: մեհեանն մեծագանձ|71, 44: βωμὸς πλουσιώτατος.  
+S. 469: և երրորդ մեհեանն|71, 52: καὶ ὁ τρίτος βωμός.  
+S. 470: յանդիման մեհենացն|71, 58: κατ' ἔναντι τῶν βωμῶν.  
+S. 470: ՚ի... տեղիս մեհենիցն|71, 59: ἔνθα οἱ βωμοί.  
+Բագին (bagin) übersetzt er in der Regel durch βωμός.  
+S. 452: աւերել անդ զբագինսն Անահտական դիցն|65, 19: καταστρέψαι τὸν ἐκεῖσε βωμὸν τῆς Ἀρτέμιδος.  
+S. 457: զբագինսն ևս դիցն Արամազդայ|67, 83: τὸν βωμὸν Κρόνου.  
+S. 469: երեք բագինքն|71, 50: τρεῖς βωμούς.  
+S. 470: ՚ի յայս բագինս մնացեալս|71, 55: ἐν τοῖς καταλειφθεῖσιν βωμοῖς τούτοις.  
+S. 471: զշինուածս բագնացն|72, 68: τοὺς βωμούς.  
+Aber ebenso findet sich ἱερόν:  
+S. 455: զի և անդ զանուանելոցն զսռւտ աստուածոցն զբագինսն կործանեսցեն|66, 68: ἵνα κἀκεῖ τῶν ψευδωνύμων θεῶν τὰ ἱερὰ καταστρέψωσιν.  
+S. 471: և ոչ կարացին զդուրս բագնացն գտանել|72, 69: οὐκ ἴσχυσαν ἐξευρεῖν τὰς θύρας τοῦ ἱεροῦ.  
+Für մեհեան stehen auch durch den biblischen Sprachgebrauch sowohl die Bedeutungen Tempel, als Götterbild und Altar fest; (s. Hübschmann, arm. Gramm. 1. S. 194 s. v. մեհեան) aber auch բագին heisst nicht nur schlechtweg Altar, wie namentlich das an letzter Stelle erwähnte Citat erweist. N. Tommaseo übersetzt mehrfach (z. B. S. 108 = 452; 151 = 457; 162 = 469 և բագինն իսկ յայս անուանեալ Ոսկիհատ Ոսկիամօր դիցն u. s. f.): 'simulacro,' wohl mit Recht; denn es scheint das Wort den Altar mit dem zugehörigen Kultbild zu bezeichnen. Indessen an unsrer Stelle, wo der Geschichtschreiber so scharf zwischen մեհեան und բագին unterscheidet, muss nothwendig den beiden Worten eine verschiedene Bedeutung innewohnen.
+
+Über Vahagn fliessen die Quellen etwas reichlicher, weil neben Agathangelos auch Moses von Chorēn werthvolle Mittheilungen beisteuert. Moses hat den Gott euhemerisirt; er ist ein Sohn des von ihm construirten ersten Tigran und ein Bruder von Bab und Tiran. Diese Genealogie ist natürlich werthlos, um so wichtiger das bekannte kleine Fragment eines auf Vahagn bezüglichen Liedes: Moses Chor. 1. 31: ...Vahagn, von dem die Fabeln* erzählen:
+
+Es kreiste der Himmel, [es kreiste] die Erde,  
+Es kreiste auch das purpurne Meer.  
+Geburtsschmerzen hatte im Meer das blutrothe Schilfrohr.*  
+Durch des Rohres Schaft kam Rauch heraus;  
+Durch des Rohres Schaft kam Flamme heraus.  
+Und aus der Flamme ein Knäblein sprang.  
+Feuer hatt' es als Haar,  
+Feuer trug es als Bart.  
+Und seine Aeuglein waren Sonnen.*
+
+Dies sangen einige zum Bambirn; wir haben es mit unseren Ohren gehört. Nach diesem erzählten sie auch im Liede, dass er mit Drachen kämpfte und siegte. Sehr ähnliches den Heldenthaten des Herakles sangen sie über ihn. Ja sie erzählten, dass er Gott geworden sei. Und im Lande der Virk͑, (Iberer), das Maass seiner Gestalt (= Bildsäule) errichtend, verehrten sie dasselbe durch Opfer. Von ihm stammen (wörtl. sind) die Häuser der Vahnunier.“ Vahagn ist vor allem der Schlangenwürger. Անոյշ մայրն վիշապաց „Anoyš die Mutter der Drachen“* wird wohl ursprünglich seinem Mythus angehört haben. In den epischen Liedern von Gołt͑n ist sie bereits euhemerisirt und zu der von Tigran in Gefangenschaft geschleppten Mederkönigin degradirt; aber auch ihr Gatte Ašdahak ist aus der Gewitterschlange in den Mederkönig Astyages umgewandelt worden. In dem wichtigen achten Kapitel von Moses zweitem Buche, welches die ganze von den Aršakunierkönigen eingerichtete Adelsordnung aufzählt, werden auch die որդիք Վահագնի die Söhne Vahagns oder Վահնունիք Vahnunier eingereiht. Sie erhalten das Priesterthum (Քրմութիւն) des Vahagn und eine Satrapie (Նախարարութիւն) ersten Ranges.
+
+*) առասպելք.
+
+*) եղեցնիկ eigentlich cannula kleines Rohr.
+
+*) Die Übersetzung nach Vetter.
+
+*) Mos. Chor. 1. 31.
+
 ...
