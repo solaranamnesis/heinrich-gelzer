@@ -48,4 +48,22 @@ Hier ist in erster Linie Gott Արամազդ Aramazd zu nennen. Er entspricht v�
 
 *) Der Grieche § 132: τὸν βωμὸν Κρόνου τοῦ πατρὸς Διὸς παντοδαίμονος. Mit Ausnahme dieser Stelle giebt er sonst Aramazd stets durch Ζεύς wieder. Gutschmid, Kl. Schr. 3. S. 342 erkennt darin das höchste Princip: Zruan. Anders und wohl richtiger Lagarde, Agathang. S. 145.
 
+Hierher gehört auch Aramazd's Sohn Միհր Mihr = Mithras. Sein Hauptheiligthum befand sich in der Provinz Derǰan (Derxene). Agathang. S. 459: Er kam, gelangte zu dem Tempel des Mihr (Մրհական մեհեանն eigentlich: dem mithrischen Tempel) welcher ein Sohn des Aramazd genannt wird, in das Dorf, welches in parthischer Sprache Bagayaṙičn* heisst.
+
+*) Բագայառիճն. Moses Chor. 2., 12 schreibt: Բագայառինջ Bagayaṙinj̑.
+
+Ferner ist unter den männlichen Gottheiten iranischen Ursprungs auch Սպանդարամետ Spandaramet zu erwähnen. Im 2. Makkabäerbuche 6. 7 wird Dionysos durch Spandaramet wiedergegeben. Lagarde* hat darin die zoroastrische Spenta Armaiti wiedererkannt. Wie und wo diese Gottheit in Armenien verehrt wurde, ist gänzlich unbekannt; sie gehört nicht zu den offiziell verehrten Göttern, deren Vernichtung bei dem Siege des Christenthums durch die Staatsgewalt geschah. Vielleicht, dass sie den Mittelpunkt irgend eines Lokalkultes bildete. Bei Thomas Arcruni S. 28 (Ausg. v. Petersburg 1887) lesen wir: „Die Erde ist die Herberge der Gottheit Spandaramet, nicht ist sie geschaffen von irgend jemand u. s. f.“ Allein dies ist ein Stück des Glaubensbekenntnisses des Hephthalitischen Königs Manithop, der dort als Lehrer einer zoroastrischen Richtung auftritt und mit Armenien nichts zu thun hat.
+
+*) Vgl. ges. Abh. S. 264, 265; armen. Stud. S. 139.
+
+Iranischen Ursprungs ist auch der vielleicht nationalste und populärste Gott der Armenier: Vahagn. Bereits Windischmann, dann namentlich Lagarde hat ihn mit dem iranischen Genius des Sieges Verethraghna identificiert.* Bei Agathangelos heisst der Gott S. 83 Վահագն Vahagn, wo er als dritter in der Triade der armenischen Landesschutzgottheiten erscheint, ebenso S. 469. Daneben kommt noch (a. a. O. S. 469) zweimal die adjectivische Form Վահէվահեան մեհեանն „der vahēvahische Tempel“ vor. Wir haben also neben Vahagn die Namensform Vahēvahē; wie J. Wackernagel ansprechend vermuthet, vielleicht ein orgiastischer Ausruf, eine Kurzform, wie Hymen Hymenaee u. s. f. Bei Agathangelos S. 469 wird nun berichtet: „Als Grigorios in das armenische Gebiet gekommen war, hörte er, dass der Vahēvahische Tempel noch übrig sei im Lande Tarōn, der Tempel, reich an Schätzen, voll Goldes und Silbers; viele Weihgeschenke grossmächtiger Könige waren daselbst dargebracht; gefeiert ward er als achtes Mysterium,* genannt das des drachenwürgenden Vahagn,* die Opferstätten der Könige Grossarmeniens auf dem Gipfel des Berges K̔ark̔ē oberhalb des Euphratstromes, welcher dem grossen Berge Tauros gegenüberliegt und nach der Opfermenge der Stätten Yaštišat genannt wurde. Denn damals standen noch wohlgebaut daselbst 3 Altäre. Der erste Tempel (war) der Vahēvahische. Der zweite der der Goldmutter, der goldgeborenen Göttin, und auch der Altar hiess danach Goldkorn der Göttin Goldmutter. Der dritte Tempel hiess der der Göttin Astłik, das Gemach des Vahagn genannt. Diese ist nach dem Griechischen Ap̔rodites selbst.“*
+
+*) Armen. Studien S. 141. Vgl. jetzt besonders: H. Hübschmann, armenische Grammatik 1. S. 75 ff. und die Ausführungen S. 77.
+
+*) պաշտօն Cultus Mysterium.
+
+*) վիշապաքաղն Վահագնի, der Grieche: εὐφημοτάτου δρακοντοπνίκτου Ἡρακλέους.
+
+*) Der Grieche bat: § 140. καὶ ὁ τρίτος βωμὸς ἀστέρος θεῶν καὶ τῶν Ἡρακλέους ἐλέγετο κληθείς κατὰ δὲ τοὺς Ἕλληνας Ἀφροδίτης. Nach dem armenischen Text (սենեակ Վահագնի) ist beim Griechen κοιτὼν Ἡρακλέους herzustellen. Die Worte ըստ յունական müssen nach Anleitung der griechischen Übersetzung zu dem Folgenden gezogen werden.
+
 ...
