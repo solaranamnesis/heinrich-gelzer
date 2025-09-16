@@ -64,6 +64,6 @@ Iranischen Ursprungs ist auch der vielleicht nationalste und populärste Gott de
 
 *) վիշապաքաղն Վահագնի, der Grieche: εὐφημοτάτου δρακοντοπνίκτου Ἡρακλέους.
 
-*) Der Grieche bat: § 140. καὶ ὁ τρίτος βωμὸς ἀστέρος θεῶν καὶ τῶν Ἡρακλέους ἐλέγετο κληθείς κατὰ δὲ τοὺς Ἕλληνας Ἀφροδίτης. Nach dem armenischen Text (սենեակ Վահագնի) ist beim Griechen κοιτὼν Ἡρακλέους herzustellen. Die Worte ըստ յունական müssen nach Anleitung der griechischen Übersetzung zu dem Folgenden gezogen werden.
+*) Der Grieche hat: § 140. καὶ ὁ τρίτος βωμὸς ἀστέρος θεῶν καὶ τῶν Ἡρακλέους ἐλέγετο κληθείς κατὰ δὲ τοὺς Ἕλληνας Ἀφροδίτης. Nach dem armenischen Text (սենեակ Վահագնի) ist beim Griechen κοιτὼν Ἡρακλέους herzustellen. Die Worte ըստ յունական müssen nach Anleitung der griechischen Übersetzung zu dem Folgenden gezogen werden.
 
 ...
