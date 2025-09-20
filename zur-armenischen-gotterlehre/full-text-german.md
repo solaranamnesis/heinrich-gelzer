@@ -10,7 +10,7 @@
 
 ---
 
-## 1\. [Der Iranische Einfluss.]()
+## 1\. [Der Iranische Einfluss.](#1-der-iranische-einfluss-1)
 
 ## 2\. [Gottheiten syrischen Ursprungs.]()
 
