@@ -12,7 +12,7 @@
 
 ## 1\. [Der Iranische Einfluss.](#1-der-iranische-einfluss-1)
 
-## 2\. [Gottheiten syrischen Ursprungs.]()
+## 2\. [Gottheiten syrischen Ursprungs.](#2-gottheiten-syrischen-ursprungs-1)
 
 ---
 
