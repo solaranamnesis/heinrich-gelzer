@@ -12,6 +12,8 @@
 
 ## 1\. [Der Iranische Einfluss.]()
 
+## 2\. [Gottheiten syrischen Ursprungs.]()
+
 ---
 
 **Sitzung am 7. December 1895.**
@@ -169,5 +171,7 @@ Mit Anahit ist der Kreis der iranischen Gottheiten abgeschlossen. Wenn wir die E
 *) Persica Diana Tac. Ann. 3 62. ἱερὸν Περσικῆς Ἀρτέμιδος Paus. 7. 6, 6.
 
 ## 2\. Gottheiten syrischen Ursprungs.
+
+Neben den starken Eindrücken, welche die armenische Götterlehre von iranischer Seite empfangen hat, sind vor allem auch die syrischen Einwirkungen zu betrachten. In der Perserzeit war aramaeisch die Sprache nicht nur in Syrien und dem obern Mesopotamien, sondern hatte auch in Irak die alte Landessprache, das Assyrisch-Babylonische verdrängt. In Kleinasien haben, wie die Münzen erweisen, die persischen Satrapen dasselbe zur officiellen Sprache erhoben. Einwirkungen von dieser Seite schreibt aber die einheimische armenische Überlieferung erst der hellenistischen Epoche zu, und es wird sich zeigen, dass vieles für diese Auffassung spricht. Erst die unmittelbaren Vorgänger Tigranes des Grossen haben das vorher unbedeutende Armenien nach allen Seiten erweitert und von Kataonern (Akilisene) und Syrern (Taraunitis) bewohnte Landstriche dem Reiche nicht allein einverleibt, sondern auch armenisiert. Die Armenier haben es also verstanden diese fremden Bestandtheile der Bevölkerung aufzusaugen und sich völlig zu eigen zu machen.* Es ist aber selbstverständlich, dass dieser Amalgamirungsprocess nicht vor sich gehen konnte, ohne dass auch die Armenier dem kulturell höher stehenden Volke gegenüber mehrfach als die entlehnenden auftreten.
 
 ...
