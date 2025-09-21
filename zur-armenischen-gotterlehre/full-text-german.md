@@ -208,4 +208,42 @@ Ebenfalls syrischen Ursprung ist wohl Astłik. Ihr Haupttempel ist in Aštišat,
 
 *) Akten S. 136.
 
+Von derselben Seite ist wohl auch die Göttin Nana-Nanai ins armenische Pantheon übernommen worden. Über diese, später von Elamiten wie den Semiten gleich eifrig verehrte Gottheit der chaldäischen Urbevölkerung hat in einer erschöpfenden Monographie G. Hoffmann* gehandelt. Was nun den speciell armenischen Kult dieser Göttin betrifft, so liegt ihr Sitz in dem westlichen, ehemals semitischen, von Kataonern bevölkerten Landstriche. Ihr Name wird nur in dem lakonischen Berichte des Agathangelos S. 457 erwähnt: „Von dort setzten sie auf das jenseitige Ufer des Flusses Gayl (Lykos) hinüber, zerstörten den Tempel der Nanaea, der Tochter des Aramazd, in dem Flecken T͑iln. Und nachdem sie die Schätze beider Tempel* geraubt und zusammengebracht hatten, überliessen sie dieselben als Opfergabe dem heiligen Dienste der Kirchen Gottes mitsammt den Ländereien.“ Der Grieche hat Ἀθηνᾶς βωμόν, und dieselbe griechische Bezeichnung gebraucht auch Moses von Chorēn für die Göttin. Sie scheint demnach in Armenien im Gegensatz zu Anahit der mütterlichen Gottheit mehr den jungfräulich herben Charakter der Kriegsgöttin gehabt zu haben. Eigenthümlich ist, dass die armenischen Göttinnen stets in ein Verhältniss zu den männlichen Gottheiten treten, Anahit und Nanaea zu Aramazd als Töchter, Astłik als Geliebte zu Vahagn.
+
+*) G. Hoffmann Akten S. 130-161.
+
+*) Nämlich der Anahit von Erēz und der Nanaea von T͑iln.
+
+Im Texte des armenischen Agathangelos haben wir, wie gewöhnlich, nicht den Namen der Göttin selbst, sondern lediglich das von dem Namen gebildete Adjektiv: Նանէական մեհեանն, der Nanēanische Tempel. Daraus wird nun von den meisten Armenisten eine Göttin Nanē erschlossen. Allein nach der Analogie z. B. von Ասիա Ասիական kann Նանէական auch von Նանէա (Նանէայ) abgeleitet werden. Wenn das richtig ist, so würde mit Նանէա nicht die orientalische, sondern die griechische Namensform der Göttin wiedergegeben. Die Armenier hätten dann die Göttin nicht von genuinen Orientalen, sondern durch hellenistische Vermittelung resp. durch bereits hellenisierte Syrer empfangen. Der Bericht über die Einführung des Dienstes bei Moses steht dem wenigstens nicht entgegen.
+
+Den aramäischen Einfluss auf die religiöse Entwickelung der Armenier beweisen ausser den aus Syrien entlehnten Götterdiensten noch einige weitere Umstände. Die Bezeichnung unsrer christlichen Quellen für die Priester ist Քուրմ K͑urm (regelmässige Benennung für die Götzenpriester) und [ARM] K͑ahanā. Beide Bezeichnungen hat Lagarde (armen. Studien S. 160 und 157) aus dem syrischen hergeleitet. Das deutet auf starke Beeinflussung des armenischen Götterdienstes durch die Syrer.
+
+Des Ferneren hat sich in der sagenhaften Überlieferung der Armenier eine deutliche Erinnerung an den starken, ursprünglich feindlichen Einfluss der syrischen Kultur und Religion erhalten. Wie die Kaunier jährlich gewappnet mit Schild und Speer in feierlichem Umzuge die fremden Götter von den Landesgrenzen zurückweisen, so bewahrt auch die altarmenische Tradition das Andenken an den Kampf des durch den ἥρως ἐπώνυμος Hayk repräsentirten ursprünglichen Volksbewusstseins mit dem syrischen, als dessen Vertreter der zum Urkönig euhemerisirte Titan Bel erscheint. Der Kampf des Hayk mit Bel ist in zwei Rezensionen erhalten, einmal bei Moses von Chorēn, sodann in dem sogenannten Pseudoagathangelos, welcher sagt er schöpfe: ՚ի մատեանն Մարաբայ փիլիսոփացի Մծուրնացւոյ „aus dem Buche des Mar Abas des Philosophen von Mcurk͑.“* Es kann nach den Ausführungen von Gutschmid* und namentlich von P. Vetter* als feststehend betrachtet werden, dass wir hier thatsächlich einen Auszug aus Mar Abas Katinā, der Quelle des Moses, vor uns haben; nur giebt der Auszug den wirklichen Inhalt wieder, während Moses sich starke Bearbeitungen und allerlei willkührliche Änderungen erlaubt. Ich gebe deshalb das Land vom Kampfe zwischen Hayk und Bel nach dem Auszuge des Unbekannten*:
+
+*) Sebēos ed. Patkanean S. 1; für Մծուրնացւոյ hat Baumgartner die scharfsinnige, von Vetter und Carrière gebilligte Conjectur Մծուինացւոյ des Nisibeners gemacht. ZDMG 1886 S. 495. Nöthig ist sie nicht. Mar Abas stammte aus Mžurk͑ Mcurk͑ = κλίμα Μουζουρῶν. Georg. Cypr. S. 183. In Mar Abas Zeit schrieben auch die Armenier nur syrisch oder griechisch, und wenn Moses denselben mit Recht einen Syrer (Սսռրի 1. 8) nennt, so waren diese damals gerade in den südarmenischen Gauen zahlreich vertreten.
+
+*) Kl. Schr. 3. S. 320 ff. 
+
+*) Festgruss an R. Roth 1893 S. 81 ff.
+
+*) Sebēos a. a. O. S. 3.
+
+„Zu jener Zeit herrschte in Babelon der riesenhafte Jäger, Bēl der Titanide (Տիտանեան) der Prächtige, welcher unter die Nicht-Götter gerechnet ward. Er war von gewaltiger Kraft und sein Hals von grosser Schönheit. Er war der Fürst aller Völker, welche über das Antlitz der ganzen Erde zerstreut waren. Dieser machte durch zauberisches Blendwerk Trugkünste und (erliess) königliche Befehle an alle Völker. In seinem Stolze und seiner Hoffart errichtete er sein Standbild, und er gebot ihm Anbetung, wie Gott, zu erweisen und Opfer darzubringen.
+
+Und alsobald vollzogen alle Völker seine Befehle. Nur ein einziger Häuptling der Völker, Hayk mit Namen, unterwarf sich nicht seiner Dienstbarkeit; nicht errichtete er in seinem Hause das Standbild desselben, noch verehrte er ihn mit göttlicher Ehre. Hayk war sein Name; gegen ihn erhob sich des Königs Bēl gewaltiger Grimm. Ein Heer versammelte König Bēl in Babelōn; er stürmt, er zieht aus gegen Hayk, um ihn zu tödten.
+
+Er zieht aus, er gelangt nach dem Lande Ararad in das Haus, welches ihr väterliches (Gut) war, welches am Bergesfuss gebaut war. Und Kadmos kam flüchtigen Fusses nach Hark͑ zu seinem Vater, ihm die Nachricht zu bringen und sagt: Stürmend zieht Bēl der König gegen dich aus; er ist gekommen, angelangt bis zu dem Hause dort. Und ich mit meiner Frau und meinen Söhnen bin hier gleich einem Flüchtling.
+
+Es nahm Hayk den Aramenak und den Kadmos, seinen Sohn, und die Söhne derselben und die Söhne seiner sieben Töchter, riesige Männer, doch gering an Zahl. Er tritt entgegen Bēl dem Könige; nicht konnte er Stand halten vor der Menge der riesigen gepanzerten Männer.
+
+Da tritt Hayk dem Bēl entgegen und Bēl wollte ihn greifen mit eigner Hand. Rückwärts wandte sich Hayk vor seinem Angesicht und als Flüchtling zog er davon. Bēl setzte hinter ihm her eifrigst zusammen mit seinem Waffenknecht.
+
+Halt machte Hayk und er spricht zu ihm: „Warum so eifrig stürmst Du hinter mir her? kehre von hier zurück nach Deinem Orte, damit Du nicht diesen Tag umkommest durch meine Hände. Denn mein Pfeil verfehlt niemals sein Ziel.“
+
+Antwort gab ihm Bēl und spricht: „Eben darum, damit Du nicht in die Hände meiner Jungmannschaft fallest und umkommest. Vielmehr komm in meine Hände und lebe in Frieden in meinem Hause, um zu ihren Verrichtungen die Jägerburschen in meinem Hause anzuhalten.“*
+
+*) Der waffenkundige Gebirgssohn soll also Oberjägermeister beim König von Babylon werden.
+
+Antwort gab ihm Hayk und spricht: „Ein Hund bist Du und von einer Hundemeute (stammt ihr) Du und Dein Volk. Deshalb fürwahr! werde ich heute meinen Köcher gegen Dich ausschütten.“ Und der König, der Titanide, gepanzert, verliess sich auf seine starke Bepanzerung. Und Hayk, Abet's Spross, nahte sich ihm und hielt in seiner Hand den Bogen gleich einem riesigen Balken von Cedernholz. Und Hayk, seinen Platz behauptend machte sich jenen gegenüber mit dem Bogen bereit.
+
 ...
