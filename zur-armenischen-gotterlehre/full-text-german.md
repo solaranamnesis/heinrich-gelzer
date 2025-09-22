@@ -14,6 +14,8 @@
 
 ## 2\. [Gottheiten syrischen Ursprungs.](#2-gottheiten-syrischen-ursprungs-1)
 
+## 3\. [Die national-armenischen Gottheiten.]()
+
 ---
 
 **Sitzung am 7. December 1895.**
