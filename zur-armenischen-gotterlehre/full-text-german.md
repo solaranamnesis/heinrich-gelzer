@@ -14,7 +14,7 @@
 
 ## 2\. [Gottheiten syrischen Ursprungs.](#2-gottheiten-syrischen-ursprungs-1)
 
-## 3\. [Die national-armenischen Gottheiten.]()
+## 3\. [Die national-armenischen Gottheiten.](#3-die-national-armenischen-gottheiten-1)
 
 ---
 
