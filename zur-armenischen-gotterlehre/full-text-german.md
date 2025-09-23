@@ -16,7 +16,7 @@
 
 ## 3\. [Die national-armenischen Gottheiten.](#3-die-national-armenischen-gottheiten-1)
 
-## 4\. [Einfluss des Hellenismus.]()
+## 4\. [Einfluss des Hellenismus.](#4-einfluss-des-hellenismus-1)
 
 ---
 
