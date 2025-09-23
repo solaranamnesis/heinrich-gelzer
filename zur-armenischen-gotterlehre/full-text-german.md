@@ -310,4 +310,10 @@ Ausserhalb unsrer Betrachtung lasse ich zwei Gottheiten, welche nur Zenob von Gl
 
 ## 4\. Einfluss des Hellenismus.
 
+Auch Armenien ist, wie die andern Länder des Ostens, früh von der hellenistischen Kultur beeinflusst worden. Die einheimische Überlieferung leitet die Einführung des Bilderdienstes aus griechischer Einwirkung her, und es ist beachtenswerth, dass sie gerade die beiden bedeutsamsten Gestalten des grossarmenischen Reichs Artašēs (Artaxias) den Gründer und Tigranes den Vollender desselben als hervorragend philhellenisch hinstellt. Freilich hat dieser Philhellenismus einen specifisch orientalischen Character; griechische Götterbilder und Priesterschaften sollen nach Armenien transportirt und dort angesiedelt worden sein. Das stimmt gut mit dem überein, was wir von König Tigranes aus den abendländischen Quellen wissen. Er hat massenhaft die griechische oder graecisirte Stadtbevölkerung Kilikiens und Kappadokiens in seinem Reich, vorab in der neuen Hauptstadt Tigranokerta angesiedelt.*
+
+*) Zenob von Glak Ausg. v. Venedig 1839 S. 8 u. s. f. 
+
+*) Ἑλλήνων δὲ τὴν Μεσοποταμίαν ἐνέπλησε, πολλοὺς μὲν ἐκ Κιλικίας, πολλοὺς δ' ἐκ Καππαδοκίας ἀνασπάστους κατοικίζων. Plut. Lucull. 21 vgl. 14 und 29 ἐκ δώδεκα ἐρημωθεισῶν ἱπ' αὐτοῦ πόλεων Ἑλληνίδων ἀνθρώπους συναγαγών. Strabo 11. 532 C. 539 C. Dio Cassius 36, 4.
+
 ...
