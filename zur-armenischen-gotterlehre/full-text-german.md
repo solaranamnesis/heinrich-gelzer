@@ -316,4 +316,44 @@ Auch Armenien ist, wie die andern Länder des Ostens, früh von der hellenistisc
 
 *) Ἑλλήνων δὲ τὴν Μεσοποταμίαν ἐνέπλησε, πολλοὺς μὲν ἐκ Κιλικίας, πολλοὺς δ' ἐκ Καππαδοκίας ἀνασπάστους κατοικίζων. Plut. Lucull. 21 vgl. 14 und 29 ἐκ δώδεκα ἐρημωθεισῶν ἱπ' αὐτοῦ πόλεων Ἑλληνίδων ἀνθρώπους συναγαγών. Strabo 11. 532 C. 539 C. Dio Cassius 36, 4.
 
+Bei Moses von Chorēn und in der griechischen Übersetzung des Agathangelos werden nun die armenischen Götternamen folgendermaassen wiedergegeben:
+
+|         |          |
+|---------|----------|
+| Aramazd | Ζεύς     |
+| Mihr    | Ἥφαιστος |
+| Anahit  | Ἄρτεμις  |
+| Nanēa   | Ἀθηνᾶ    |
+| Astłik  | Ἀφροδίτη |
+| Tiur    | Ἀπόλλων  |
+| Vahagn  | Ἡρακλῆς  |
+
+Für Baršamin, dessen fremde syrische Herkunft in der Erinnerung blieb und für Vanatur existirt keine Übersetzung. Diese völlig feststehende und zum Theil wenig passende Correspondenz (man vergleiche Mihr --- Ἥφαιστος) lässt darauf schliessen, dass dieselbe längst in Übung bestand und von den Schriftstellern dem herrschenden Volksgebrauch entlehnt ward. Über die Einführung des griechischen Bilderdienstes hat nun Moses zwei völlig verschiedene Berichte, die offenbar auf einen verschiedenen Ursprung zurückgehen. Auch in der spätern Geschichte lassen sich sowohl mit dem ersten, wie mit dem zweiten Berichte zusammenhängende Anhänge nachweisen.
+
+_Erster Bericht._
+
+Moses Chor. 2. 12: „Nachdem er (Artašēs) in Asien vergoldete Broncestatuen der Artemis, des Herakles und des Apollon gefunden hatte, lässt er sie in unser Land schaffen, um sie in Armavir aufzurichten. Diese nahmen die Hohenpriester, welche vom Geschlechte der Vahnunier waren, und den Apollon und die Artemis stellten sie in Armavir auf. Aber das Männerbildniss des Herakles, welches von Skyllis und Dipoinos dem Kreter angefertigt war, haben sie, da sie ihn für den Vahagn, ihren Genarchen, hielten, in Tarōn, in ihrem erbeigenthümlichen Dorfe Aštišat, nach dem Tode des Artašēs aufgestellt.“
+
+Moses Chor. 2. 40: „Aber Eruand, nachdem er seine Stadt gebaut hatte, schaffte Alles von Armavir dorthin ausgenommen die Götteridole... Aber in einer Entfernung von vierzig aspaṙēs von derselben nach Norden baute er nach dem Vorbilde seiner Stadt eine kleine Stadt an dem Flusse Axurean und nannte sie Bagaran. Eben dort richtete er in derselben die Ordnung der Altäre und schaffte dorthin alle Götteridole aus Armavir. Tempel baute er, und seinen Bruder Eruaz setzte er als Oberpriester ein.“
+
+Moses Chor. 2. 49: „Als Artašēs an den Ort gekommen war, wo der Erasx und der Mecamor sich vereinigen, findet er Gefallen an dem Hügel, baut eine Stadt nach seinem Namen Artašat genannt... er errichtet in derselben einen Tempel und schafft dahin das Bildniss der Artemis aus Bagaran und alle väterlichen Götteridole. Aber Apollons Bildniss richtet er ausserhalb der Stadt auf in der Nähe an der (öffentlichen) Strasse.“
+
+Ganz anders lautet der zweite Bericht, den wir hier folgen lassen:
+
+_Zweiter Bericht._
+
+Moses Chor. 2. 12: „Aber nachdem (Artašēs) in Griechenland die Bildnisse des Zeus, der Artemis, der Athena, des Hephaestos, der Aphrodite genommen hat, befiehlt er sie nach Armenien zu transportiren. Noch nicht war es geschehen, dass sie in das Land hineingekommen waren, da hörten sie* die Nachricht vom Tode des Artašēs. Sie flohen und deponirten die Bildnisse in der Festung von Ani. Und die Priester, sich ihnen widmend, blieben bei ihnen.“
+
+*) Aus dem Zusammenhang ergiebt sich, dass es die mit dem Transport beauftragten Priester sind.
+
+Moses Chor. 2. 14: Als erstes Werk beabsichtigte er Tempel zu erbauen. Aber die Priester, welche aus Griechenland gekommen waren, im Geiste bedenkend, sie möchten in das innerste Armenien verschleppt werden, erdichteten Omina, als ob die Götter daselbst sich niederlassen wollten. Dem zustimmend errichtete Tigran die Statue des olympischen Zeus in der Burg Ani, die der Athena in T͑il, eine andere Statue der Artemis in Erēz und die des Hephaestos in Bagayarinǰ. Aber die Statue der Aphrodite, als der Geliebten des Herakles, befahl er neben der Statue des Herakles selbst an den Opferstätten (= Aštišat) aufzustellen. [Und ergrimmt über die Vahnunier, weil sie gewagt hatten, auf ihrem eignen Erbgute die von seinem Vater übersandte Statue des Herakles aufzustellen, entsetzt er sie ihres Priesterthums, und schlägt das Dorf, wo die Statuen aufgerichtet waren, zur königlichen Domäne].* Nachdem er dergestalt die Tempel erbaut und vor den Tempeln Altäre errichtet hatte, befahl er allen Satrapen Opfer mit Anbetung zu verrichten... (Tigranes) steigt nach Mesopotamien hinab. Und als er hier die Bildsäule des Baršamin gefunden hatte, welche aus Elfenbein, Krystall und Silber angefertigt war, befiehlt er sie fortzuführen und im Flecken T͑ordan aufzustellen.“
+
+*) Das Eingeklammerte gehört dem Inhalte und Zusammenhang nach ganz deutlich in den ersten Bericht.
+
+Man wird sogleich bemerken, dass wir es mit zwei völlig getrennten Berichten zu thun haben. Der erste lässt die Götterstatuen aus Asien, der zweite aus Griechenland kommen. Der erste Bericht schenkt sein Interesse nur Apollon und Artemis, den Göttern von Artaxata, und Herakles, dem Gotte von Tarōn. Es sind die Tempellegenden dieser beiden Kultusstätten. Interessant ist namentlich die Legende von Aštišat. Hier treffen wir ein mächtiges Priestergeschlecht, die Vahnunier, welche in ihrer ἱερὰ κώμη den Kult des Vahagn pflegen. König Artašēs hat nach dem Legendenberichte, als er die ersten von griechischen Künstlern gefertigten Statuen in das barbarische Land brachte, im Einverständniss mit den Oberpriestern aus dem Vahnuniergeschlecht gehandelt und sich ihrer als Commissare bei dem Transporte bedient. Unter Tigranes dagegen kommt es zum völligen Bruch zwischen Thron und Altar. Das taronitische Priesterdorf mit seinen Heiligthümern wird von der Krone confiszirt, und die Hohenpriester werden ihrer Würde entkleidet. Das Factum ist nicht unglaubwürdig, da späterhin als Erbherrn von Aštišat eine Nebenlinie des Königshauses auftritt. Dass das hochverehrte Herakles-Vahagnbildniss ein Werk der uralten kretischen Künstler gewesen sei, braucht man nicht nothwendig als schriftstellerische Erfindung, sei es des Moses, sei es seiner Quelle hinzustellen. Es ist bekannt, welch starker hellenischer Bildungsstrom in der Tigranesperiode die höhern Schichten der armenischen Bevölkerung ergriffen hat.* --- König Artavazd der Sohn des Tigranes schriftstellerte griechisch. --- Es ist daher nicht unmöglich, dass wir es mit einer alten Tempellegende von Aštišat zu thun haben, welche die Priester und Küster zur Erhöhung der frommen Andacht und der milden Gaben in Umlauf setzten.
+
+*) Vgl. Th. Reinach, Mithridate Eupator S. 344 ff.
+
+Ausser der Legende von Aštišat enthält der erste Bericht noch die von Artašat. Die dortigen hochheiligen Gottheiten Anahit (Artemis) und Tiur (Apollon) wurden ursprünglich in Armavir aufgestellt; König Eruand versetzte sie nach Bagaran, Artašēs 2. endlich in seine neu erbaute Residenz Artašat. Richtig und mit Agathangelos, der zuverlässigsten Quelle, in Übereinstimmung steht die Angabe, dass nur Anahit in der Stadt selbst ihren Tempel erhielt, während der Apollotempel ausserhalb der Stadt an der grossen Heerstrasse eingerichtet ward. Der abenteuerliche Bericht von der dreimaligen Verlegung des Sitzes der Götterbilder enthält insofern eine notorische Unrichtigkeit, als er die Gründung von Artašat dem jüngern statt dem ersten Artašēs zuschreibt. Die ganze Erzählung macht den Eindruck spät und schlecht erfunden zu sein.
+
 ...
