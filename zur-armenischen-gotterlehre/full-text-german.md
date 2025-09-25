@@ -18,6 +18,8 @@
 
 ## 4\. [Einfluss des Hellenismus.](#4-einfluss-des-hellenismus-1)
 
+## 5\. [Armenische Theologie.]()
+
 ---
 
 **Sitzung am 7. December 1895.**
