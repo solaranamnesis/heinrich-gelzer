@@ -374,7 +374,7 @@ Neben Olympios citirt Moses 2. 48 für die Geschichtsepoche, wo sein alter Führ
 
 Die Tempellegenden zeigen eine euhemeristische Deutungsweise, so bezüglich der Omina, welche den Götterstatuen ihren Platz anwiesen und bezüglich des Vanaturtempels von Bagavan, das ein Priestergrab sein soll. Es liegt keinerlei Nöthigung vor, diese Rationalisirung erst den Christen zuzuschreiben; der Verfasser der Tempelgeschichte hat sich eben nach der Art eines Philon von Byblos oder Suetonius an die Gebildeten gewandt, welche längstens derartige Deutungen der alten Mythen kannten.
 
-## Armenische Theologie.
+## 5\. Armenische Theologie.
 
 Spuren einer Systematisirung des einheimischen Götterglaubens, Theologumena der armenischen Priesterschaft, lassen sich nur in geringer Zahl nachweisen. Wie anderwärts finden wir auch in Armenien die Götter in Triaden und Ogdoaden geordnet. In Südarmenien in Tarōn ist uns die Trias von Aštišat bekannt: Vahagn --- Anahit --- Astłik. Eine zweite Trias begegnet uns in Tiridates' Edikt, woraus sich ergiebt, dass diese Götter officiell als die drei grossen Schutzgottheiten des Landes anerkannt waren Agathang. S. 82: „Trdat der König von Grossarmenien an die Megistanen (մեծամեծս), die Fürsten, die Satrapen, die Beamten und die übrige Menschheit, die ihr in Burgen, Flecken, Dörfern und auf dem platten Lande wohnt, an die Freien und Bauern, Allen mit einander Heil! Heil und Wohlstand komme durch der Götter Hülfe, Fülle des Überflusses vom starken Aramazd, Schutz von der Herrin Anahit, Tapferkeit vom tapfern Vahagn zu dem gesammten Reiche der Armenier u. s. f.“
 
