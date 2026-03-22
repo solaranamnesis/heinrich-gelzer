@@ -291,7 +291,7 @@ Das Resultat, welches man aus einer eingehenden Betrachtung des armenischen Pant
 [^61]: Collection des hist. a. et m. de l'Armén. 1. S. Note. Vgl. jetzt auch J. Marquart ZDMG 49 S. 658 ff.
 [^62]: Faustus 5. 36.
 [^63]: Kl. Schr. 3. S. 321 vgl. 334.
-[^64]: P. Vetter a. a. O. schreibt die dem Mar Abas-Berichte angehängte Liste der armenischen Könige einer anderen Quelle zu, weil sie nach Moses von Chorēn neben Aršak dem Jüngern den Vałaršak als Mitregenten aufzählt. Die Worte էղբարբ --- աշխարհիս Sebēos S. 10 sind als Glossem des Interpolators auszuscheiden. Dann fällt das Hauptbedenken gegen die Zuweisung der Liste an Mar Abas.
+[^64]: P. Vetter a. a. O. schreibt die dem Mar Abas-Berichte angehängte Liste der armenischen Könige einer anderen Quelle zu, weil sie nach Moses von Chorēn neben Aršak dem Jüngern den Vałaršak als Mitregenten aufzählt. Die Worte էղբարբ — աշխարհիս Sebēos S. 10 sind als Glossem des Interpolators auszuscheiden. Dann fällt das Hauptbedenken gegen die Zuweisung der Liste an Mar Abas.
 [^65]: oder Sanktuarium.
 [^66]: Auf dieses Neujahrsfest առաւօտն նաւաոարդի den frohen Morgen des Neujahrs bezieht sich das einzige Lied aus Gołt͑n, welches wir nicht dem Mosēs, sondern dem Gregorios Magistros verdanken. Sein Verfasser soll Ardašēs der Parther sein. Journ. Asiat. 6. Sér. T. 13. S. 53.
 [^67]: Socrates h. e. 3. 18, Sozomenus 5. 19.
